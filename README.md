@@ -1,4 +1,7 @@
-### Hi there 👋
+                        ╱|、
+                      (˚ˎ 。7  
+                       |、˜〵          
+                      じしˍ,)ノ
 
 <!--
 **Barney25052/Barney25052** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
